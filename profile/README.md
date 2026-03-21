@@ -32,7 +32,7 @@
 
 ### Связь с нами
 - **Новости и обновления:** [тык](https://t.me/happdecrypt)
-- **Обсуждение и поддержка:** [тык](https://t.me/+L8HdzVD-ctkxNzhi)
+- **Обсуждение и поддержка:** [тык](https://t.me/happdecrypt_chat)
 
 ---
 
